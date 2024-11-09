@@ -50,4 +50,5 @@ Let's connect! Find me on:
 - Coding
 - Gaming
 - Cycling
+
 Have a cool project in mind? Feel free to reach out! I'm always open to collaborating.
